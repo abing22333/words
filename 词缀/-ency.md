@@ -1,0 +1,1 @@
+n.＝the quality or state 表性质或状态
