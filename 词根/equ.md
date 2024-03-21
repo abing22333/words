@@ -1,0 +1,1 @@
+[L] = even, equal 相等

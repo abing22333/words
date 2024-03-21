@@ -1,0 +1,1 @@
+[L] = to run 跑；cur(r)用来构成动词；curs和cours只出现于名词和形容词中。

@@ -1,0 +1,1 @@
+[GK] = writtent character, writing 书写符号；书写物

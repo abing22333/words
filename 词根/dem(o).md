@@ -1,0 +1,1 @@
+[GK] = the people 人民

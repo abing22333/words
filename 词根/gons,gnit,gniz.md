@@ -1,0 +1,1 @@
+[GK,L] = to konw 
