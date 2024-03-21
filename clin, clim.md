@@ -1,0 +1,1 @@
+[L, GK] = to lean or slope 倾斜

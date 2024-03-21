@@ -1,0 +1,1 @@
+[L]= to shut or close 关闭

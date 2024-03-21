@@ -1,0 +1,1 @@
+[L] = to call out 喊；claim 构成动词，clam(at)出现于名词和形容词中

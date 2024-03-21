@@ -1,0 +1,1 @@
+[L] = to believe or to trust 相信；信任
