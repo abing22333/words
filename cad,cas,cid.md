@@ -1,0 +1,1 @@
+[L] = to fall or befall，降，降临；都源于拉丁动词cadere，cad是现在词干，cas是分词词干，
